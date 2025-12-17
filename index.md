@@ -17,7 +17,7 @@ Veri silme talepleri alındıktan sonra, yasal zorunluluklar dışında kalan t�
 Gizlilik politikası veya kullanıcı verileri ile ilgili talepler için aşağıdaki iletişim adresi kullanılabilir:
 
 İletişim:
-esran.aydd@gmail.com
+esran.aydgd@gmail.com
 
 Bu gizlilik politikası gerektiğinde güncellenebilir ve güncel sürüm bu sayfa üzerinden yayımlanır.
 
